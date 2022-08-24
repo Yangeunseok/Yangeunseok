@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yangeunseok
 - 👀 I’m interested in Watching movies
 - 🌱 I’m currently learning Early Childhood Education
-- 💞️ I’m looking to collaborate on
+- 💞️ I’m looking to collaborate on mate
 - 📫 How to reach me : There's no way
 
 <!---
